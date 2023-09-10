@@ -22,6 +22,7 @@ Comédia, Romance
 ### El Craze Che - 2015 - Prime Vídeo
 Documentário, Espionagem
 ### Me casé con un boludo (Roteiro de Casamento) - 2016
+Comédia, vida a dois
 ### A Cordilheira - 2018 - Prime Vídeo
 Suspense, Drama
 ### La quietud - 2019 - Prime Vídeo
