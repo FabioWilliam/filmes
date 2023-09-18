@@ -32,10 +32,13 @@ Drama, Machismo
 ### La Muerte de Dios - 2021 - Prime Vídeo
 Documentário, Futebol
 ### Argentina 1985 - 2022
-Drama
+Gênero: Drama
 Direção: Santiago Mitre
 Elenco: Peter Lanzani, Ricardo Darín### Blondi - 2023- Prime Vídeo
 Comédia, Drama, Maternidade
+### 30 noches con mi ex (30 dias com minha ex) - 2022 - Star +
+Direção: Adrián Suar
+Gênero: Comédia, Romance
 ### Um Santo lano
 ### Amando a Carolina
 ### Causalidad
