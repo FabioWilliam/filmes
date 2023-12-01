@@ -9,6 +9,10 @@ Drama, Comédia, Família
 Drama, Comédia, Família
 ### Derecho de família - 2006 - Prime Vídeo
 Drama, Comédia, Família
+### Carancho (Abutres) - 2010 - Netflix 
+Direção: Pablo Trapero
+Roteiro Alejandro Fadel, Martin Mauregui
+Elenco: Ricardo Darín, Martina Gusmán, Carlos Weber
 ### Dos Hermanos- 2011 - Prime Vídeo
 Comédio, Drama, Envelhecimento
 ### La Suerte en tus manos - 2012 - Prime Video
